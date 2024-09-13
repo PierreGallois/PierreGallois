@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @PierreGallois
+- 👀 I’m interested in Math
+- 🌱 I’m currently learning Math (mostly Number Theory)
+- 💞️ I’m looking to collaborate on Math
+- 😄 Pronouns: he/him  
+- ⚡ Fun fact: I like math
